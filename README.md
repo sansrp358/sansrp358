@@ -14,5 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+<img src="https://user-images.githubusercontent.com/5679180/79618120-0daffb80-80be-11ea-819e-d2b0fa904d07.gif" />
 
 My objective is to work for an organization ⚡ which provide me the opportunity to improve my skills 😄 and knowledge 😄 to grow along with the organization objective ✨ and at the same time to get an opportunity for my personal development✨✨
